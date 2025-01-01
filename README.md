@@ -140,7 +140,7 @@ Whether you're aiming for proficiency in DevOps, Cloud Computing, Linux, Kuberne
 
 ### How much does KodeKloud cost?
 
-The KodeKloud pricing for its courses varies based on the specific course you select. Fortunately, you can leverage KodeKloud coupons and promo codes to receive discounts on your course fees.
+The KodeKloud pricing for its courses varies based on the specific course you select. Fortunately, you can leverage [latest 65% off KodeKloud coupons](https://yupbeat.com/deals/kodekloud-coupon-code/) and promo codes to receive discounts on your course fees.
 
 ### What payment options are available for KodeKloud courses?
 
