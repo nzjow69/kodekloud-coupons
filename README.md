@@ -8,7 +8,7 @@ Here are the latest discount coupons for all the students.💰
 
 ## KodeKloud Coupon Code: Save 45% On Pro Plan
 
-Now you can claim an [extra 45% discount](https://bit.ly/3YVG3zD) on the KodeKloud Pro annual subscription. This limited-time offer expires soon in 2024. Click the discount button below to claim the offer now.
+Now you can claim an extra [45% discount on the KodeKloud Pro annual subscription](https://github.com/nzjow69/kodekloud-coupons/). This limited-time offer expires soon in 2024. Click the discount button below to claim the offer now.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeG9CDLawHxxavb6WCZC8a2Bv2MwcvfGm7DK1Q8xCkR0FIMYl0YQJotR4TU5wQP8NhCpv3YKAQeHCB8OZ1Mfmop75Z9fKmCU3NfR72Tp32wA3qEZwnERVbbftcMhBubBiwBdjO1eA?key=ZOA6ld0rSmq1a8CRX4FPFC9N)](https://bit.ly/3YVG3zD)
 
