@@ -67,7 +67,7 @@ Use this KodeKloud coupon code to [save 30%](https://bit.ly/3YVG3zD) on a busine
 
 ## Extra 10% Savings Offer 2025
 
-Especially for my readers, here I have an [extra 10% savings](https://bit.ly/3YVG3zD) offer for 2025! This limited-time promotional link allows you to stack up your savings and make the most out of your KodeKloud subscription.
+Especially for my readers, here I have an [extra 10% savings](https://shareasale.com/r.cfm?b=2166756&u=4034090&m=132199&urllink=&afftrack=) offer for 2025! This limited-time promotional link allows you to stack up your savings and make the most out of your KodeKloud subscription.
 
 This is a limited-time offer, grab it before it's gone. Click the button below.
 
